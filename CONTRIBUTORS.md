@@ -1,2 +1,2 @@
 # Contributors for the project:
-*[Hyunjae Lee]
+*[name different from yours]
